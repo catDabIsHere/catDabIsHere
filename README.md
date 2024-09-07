@@ -1,16 +1,14 @@
 ## Hi there 👋
 
-<!--
-**catDabIsHere/catDabIsHere** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Im knowen as:
+*cat dab
+*cat dab is cool
+*caren888
+*cat
+*cat 1
+*cat dab is back
 
-Here are some ideas to get you started:
+What Im studing:
+art, python ,scratch ,microbit, anmation 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Other acounts: https://scratch.mit.edu/users/caren888/ https://www.youtube.com/@Help-me-he_has-traped-me-imSad and more will be added
