@@ -18,3 +18,7 @@ hobbies:
 
 * dragon puppets
 * more hobbies will be added
+
+pronowns and gender:  
+* they them or she her is fine
+* im nonbinary but can be considderd a girl
