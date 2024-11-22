@@ -12,7 +12,7 @@ Im knowen as:
 What Im studing:  
 art, python, scratch, microbit, anmation 
 
-Other acounts: https://scratch.mit.edu/users/caren888/ [https://www.youtube.com/@Help-me-he_has-traped-me-imSad](https://www.youtube.com/@I_dont_need_help_anymoreThanks) and more will be added
+Other acounts: https://scratch.mit.edu/users/caren888/ https://www.youtube.com/@I_dont_need_help_anymoreThanks and more will be added
 
 hobbies:  
 
