@@ -1,24 +1,3 @@
-## Hi there 👋
+## Hi there 
 
-Im knowen as:
-
-* cat dab
-* cat dab is cool
-* caren888
-* cat
-* cat 1
-* cat dab is back
-
-What Im studing:  
-art, python, scratch, microbit, anmation 
-
-Other acounts: https://scratch.mit.edu/users/caren888/ https://www.youtube.com/@I_dont_need_help_anymoreThanks and more will be added
-
-hobbies:  
-
-* dragon puppets
-* more hobbies will be added
-
-pronowns and gender:  
-* they them or she her is fine
-* im nonbinary but can be considderd a girl
+I am a Cat
